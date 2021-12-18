@@ -2,6 +2,6 @@
 
 Que tal relembrar esse jogo em sua versão digital ?
 
-<img src="https://www.pontofrio-imagens.com.br/Control/ArquivoExibir.aspx?IdArquivo=1216250741" alt="&quot;genius&quot;" style="zoom:100%;" />
+<img src="https://images-na.ssl-images-amazon.com/images/I/614UDTGGknL.__AC_SY300_SX300_QL70_ML2_.jpg" alt="&quot;genius&quot;" style="zoom:200%;" />
 
 Divirtam-se com esse jogo classico ! 
